@@ -1,1 +1,1 @@
-# Shahid-Solangi
+# ShahidSolangi
